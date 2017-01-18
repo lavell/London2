@@ -1,0 +1,1 @@
+the weather the people the places the culture the accent the LIFE
